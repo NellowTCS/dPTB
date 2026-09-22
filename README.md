@@ -1,4 +1,4 @@
-# d̷PTB 
+# d̷PTB
 
 An indie horror visual novel where ███████████████████████ the ████████████████████.
 
