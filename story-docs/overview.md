@@ -106,4 +106,8 @@ the mystery is...
 "Who or what is Ada?"
 
 we do find out
+but not everything
 
+we learn more about her
+i'm still deciding on how much we learn
+70-80%?
